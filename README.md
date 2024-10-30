@@ -1,2 +1,2 @@
 # GoldenPenguin
-The Golden Penguin Project
+The Golden Penguin Project: Coming Soon...
